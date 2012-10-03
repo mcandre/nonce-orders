@@ -10,4 +10,4 @@ The forces of good and evil wage constant war upon the earth, steering it just o
 
 # OBJECTIVE
 
-If the battle between good and evil ever reaches Apocalypse, however, the ensuing cataclysm will destroy all life on the losing circles of Heaven or Hell, as well as revoking earth's privileged sanctuary status, obliterating all remaining life on earth. To win the game of is to maintain earth's neutrality, by issuing enough angelic and demonic Nonce Orders to appease the Higher Powers while cleverly avoiding escalation to a full-scale Apocalypse.
+If the battle between good and evil ever reaches Apocalypse, however, the ensuing cataclysm will destroy all life on the losing circles of Heaven or Hell, as well as revoking earth's privileged sanctuary status, obliterating all remaining life on earth. To win the game is to maintain earth's neutrality, by issuing enough angelic and demonic Nonce Orders to appease the Higher Powers while cleverly avoiding escalation to a full-scale Apocalypse.
