@@ -6,7 +6,7 @@
 
 # INTRODUCTION
 
-The forces of good and evil wage constant war upon the earth, steering it just outside of Hell, and at times skirting past Heaven. While you and your adversaries lean philosophically one way or the other, you come to the mutual conclusion that life is good, that its myriad variations makes it far more enjoyable than the final absolute of life in Heaven or Hell. Your enlightened views are quite outside the norm; For most souls it is accepted as bare fact that earth would be better off under rule by one side or the other. Each is Hell- or Heaven-bent on assuming power once and for all.
+The forces of good and evil wage constant war upon the earth, steering it just outside of Hell, and at times skirting past Heaven. While you and your adversaries lean philosophically one way or the other, you come to the mutual conclusion that life is good, that its myriad variations makes it far more enjoyable than the final absolute of life in Heaven or Hell. Your enlightened views are quite outside the norm; For most souls, it is accepted as bare fact that earth would be better off under rule by one side or the other. Each is Hell- or Heaven-bent on assuming power once and for all.
 
 # OBJECTIVE
 
